@@ -1,4 +1,4 @@
-### Oi! Eu sou a Bruna Albuquerque 👋
+### Oi! Eu sou a Bruna Albuquerque 👩🏻‍💻😽
 
 - 🔭 Front End
 - 🌱 Estudando Front End 
